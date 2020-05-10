@@ -1,5 +1,5 @@
-Daniel Alejandro Angel Fuertes-
+Daniel Alejandro Angel Fuertes -
 201911345/
-JuanPablo Barriga- 
+JuanPablo Barriga - 
 201911561/
 Tercer semestre
